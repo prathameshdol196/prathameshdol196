@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **prathameshdol196@gmail.com**
 
-- 📄 Know about my experiences [https://github.com/prathameshdol196/prathameshdol196/blob/main/Prathamesh.pdf](https://github.com/prathameshdol196/prathameshdol196/blob/main/Prathamesh.pdf)
+- 📄 Know about my experiences [Prathamesh.pdf](https://github.com/prathameshdol196/prathameshdol196/blob/main/Prathamesh.pdf)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
